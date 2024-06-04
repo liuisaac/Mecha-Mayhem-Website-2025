@@ -5,7 +5,7 @@ The Mecha Mayhem V5RC Signature Event will be held at the home of the Calgary St
 Join the official event Discord! https://discord.gg/fMJSW3Jv4n
 
 # What is Mecha Mayhem?
-[![MECHA MAYHEM PROMO VIDEO](https://img.youtube.com/vi/YOUTUBE_VIDEO_ID_HERE/0.jpg)](https://youtu.be/e-PBs0b2zsc)
+[![MECHA MAYHEM PROMO VIDEO](https://i.ytimg.com/vi/e-PBs0b2zsc/maxresdefault.jpg)](https://youtu.be/e-PBs0b2zsc)
 
 
 # About the Event
